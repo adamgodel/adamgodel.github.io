@@ -1,1 +1,0 @@
-# adamgodel.github.io
